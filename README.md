@@ -4,6 +4,8 @@
 
 ♡. ︶  ( NOT roleplaying please dni if you try to start rps) 
 
+I follow any githubs of people who have cool cosplays of any tadc characters ^^ ᰔ
+
 ![a3736c66eb8970f83fc5a9367bff16ba](https://github.com/user-attachments/assets/d4138b7e-07ce-4bea-b934-4c14e8f3fd2e)
 
 Matching profiles with my two bestfriends Rag and Jax ! check their githubs out :) 
